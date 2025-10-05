@@ -1,1 +1,1 @@
-# leonalipovski.github.io
+#  Stránka leona.lipovski.sk sa práve akutalizuje :) !
